@@ -4,6 +4,6 @@ VINICIUS
 
 15y
 
-Torcedor do Flamengo
+Flamengo melhor time
 
 filme fav: velozes e furiosos
